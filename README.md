@@ -1,0 +1,1 @@
+# Natural-ou-falso-Natty-Como-Vencer-na-Era-das-IAs-Generativas
